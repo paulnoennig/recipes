@@ -5,6 +5,7 @@
 * Salty, hard cheese (Robusto)
 * Pepper
 * Salt
+* 3 tbs butter
 * Forest mushrooms 
 * 1/3 c marsala
 * 2 cloves organic garlic
